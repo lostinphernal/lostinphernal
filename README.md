@@ -7,7 +7,8 @@
 ![DITF CREDIT](https://files.catbox.moe/u09lng.png)
 
 <p align="center">
-**rance** / *ranu* / ranch | 6teen |she**her**
+
+  **rance** / *ranu* / ranch | 6teen | she**her**
 </p>
 
 also the following stuff is like HELLA yap
