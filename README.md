@@ -11,37 +11,39 @@
   <sub>i identify as</sub> she/her, but they/them is fine too. please don't use masc terms on me!</sub>
 </p>
 
+also the following stuff is like HELLA yap
+
 <details>
 <summary>things to know</summary>
 
 **BYF/I**
-<p align="center">
-  i am a typically shy individual and may come off as distant but i wouldn't say i'm antisocial. maybe i don't know 😭 -- i don't really have a lot of friends as of now, so don't be scared to talk /w me!
-</p>
+  i am a typically shy individual and may come off as distant (i'm so sorry if i hurt you feelings ignorantly). i get HIGHLY ANXIOUS when socializing - but there are rare moments i will interact first. sometimes i go <sub>semi/non-verbal</sub>, but honestly it's never for a major reason; i probably just don't feel like typing.
+  <sub>**i have a hard time making/keeping friends, i'm genuinely sorry(again) if i say anything that kills the mood.**</sub>
 
 **IWC + DNI**
-<p align="center">
-  the following fandoms, <sub>Dandy's World, Forsaken, and Regretevator</sub> please IWC.
-  people who are apart of fandoms/support games with controversial creators- DNI. <sub>e.g. YanSim, CoF + AoM, etc.</sub>
-  other than that, basic dni criteria.
+generally don't really care about fandoms anymore-- i'm resorting to just freely block. obvious *basic dni criteria*. i don't care about ragebaiters/trollers honestly it's 50/50 i'll joke back, if not, i just won't respond. i'm not big on arguing haha
+
+probably the one thing i won't tolerate is people who support/make skins of controversial games/creators. i don't care if it's just a 'joke', there are limits to everything.
+
+also if you're under 13 or over 20, i recommend *iwc*.
 </details>
 
 <details>
-  <summary>about me</summary>
+  <summary>stuff i fw</summary>
 
-**BIO**
-i am 16yo, filipino-chinese, and have two younger brothers (found family): @spring-fever and @cinnamonshut.
+**fandoms**
+*PHIGHTING!*, *ULTRAKILL*, ***TRANSFORMERS***, Star Wars, *DC*, Invincible, ITSV + ATSV, BATIM+BATDR
 
-**interests**
-roblox is not my main interest, as phighting is just a hyperfixation of mine. my main interests are ultrakill, transformers and comics (primarily DC and invincible). <sub>a list of other stuff i like but irrelevant: RHYTHM GAMES (i don't associate with the fandom), MC ARGs, ROBLOX MYTHS, POKEPASTA + CREEPYPASTA + MARBLE HORNETS.</sub>
+**music**
+*wave to earth*, any punk rock, frank sinatra/paul anka (anything of that variety), unironically phighting+ultrakill ost.
 
-yeah a lot of these i just come back to.. in summary i'm a stupid teenager who likes pvp games with fire soundtracks, comics and robots.
+if u like any of these chances are i'll get excited if u int.. ACTUALLY WHATEVER IDC just int if u chill like that.. heh!
 </details>
 
 <details>
   <summary>where else you can find me</summary>
 
-  **GITHUBS** *@ranujet* IS MY MAIN and transformers github. @crimealley is my comics github. you are currently in the phighting one!
+  **GITHUBS** ***@ranujet*** *@crimealley* both me. if u wanna follow git just follow main cuz my alts will ALWAYS be privated.
 
   **DISCORD** *@ranujet* literally just my main usertag. i'm sort of inactive online anyways but this is your best bet to contact me :')
 </details>
