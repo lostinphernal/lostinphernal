@@ -41,6 +41,13 @@ if u like any of these chances are i'll get excited if u int.. ACTUALLY WHATEVER
 </details>
 
 <details>
+  <summary>focused abt me</summary>
+  
+  hi i'm rance, use **she**her pronouns primarily / rarely use *they*. please avoid using masc terms for me.
+  i'm **16**, so please (try) to refrain from nsfw stuff if u int. also speaking of this i'm ace :).
+</details>
+
+<details>
   <summary>where else you can find me</summary>
 
   **GITHUBS** ***@ranujet*** *@crimealley* both me. if u wanna follow git just follow main cuz my alts will ALWAYS be privated.
