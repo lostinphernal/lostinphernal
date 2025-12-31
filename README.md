@@ -17,7 +17,7 @@ also the following stuff is like HELLA yap
 <summary>things to know</summary>
 
 **BYF/I**
-  i am a typically shy individual and may come off as distant (i'm so sorry if i hurt you feelings ignorantly). i get HIGHLY ANXIOUS when socializing - but there are rare moments i will interact first. sometimes i go <sub>semi/non-verbal</sub>, but honestly it's never for a major reason; i probably just don't feel like typing.
+  i am a typically shy individual and may come off as distant (i'm so sorry if i hurt you feelings ignorantly). i get HIGHLY ANXIOUS when socializing - but there are rare moments i will interact first. sometimes i go <sub>semi/non-verbal</sub>, but honestly it's never for a major reason; prolly just not up for chatting... but c+h, plz? hello? chat is my mic muted 🥹
   <sub>**i have a hard time making/keeping friends, i'm genuinely sorry(again) if i say anything that kills the mood.**</sub>
 
 **IWC + DNI**
