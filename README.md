@@ -43,7 +43,7 @@ if u like any of these chances are i'll get excited if u int.. ACTUALLY WHATEVER
 <details>
   <summary>focused abt me</summary>
   
-  hi i'm rance, use **she**her pronouns primarily / rarely use *they*. please avoid using masc terms for me.
+  hi i'm rance, yes i use they/them. but any is fine idm.
 
   i'm **16**, so please (try) to refrain from nsfw stuff if u int. also speaking of this i'm ace :).
 
