@@ -4,15 +4,9 @@
 
   ![goodness gracious](https://files.catbox.moe/cuqq4n.png)
 
+i know this github is evangelion themed-- but it's main purpose is for my multifandom crap. solve my arg and find my interests. read [rentry](https://rentry.co/fraudulentangel) sign [ata](https://vermillion.atabook.org/)..
+
 </div>
-
-<p align="center">
-
-  read [rentry](https://rentry.co/fraudulentangel)
-
-sign [atabook](https://vermillion.atabook.org/)
-
-</p>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
