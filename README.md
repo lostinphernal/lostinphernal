@@ -1,6 +1,11 @@
 ![](https://komarev.com/ghpvc/?username=ranumisc&color=000000&label=angels&style=plastic)
 
-check rentry.
+<div align="center">
+
+![goodness gracious](https://files.catbox.moe/cuqq4n.png)
+
+</div>
+
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
